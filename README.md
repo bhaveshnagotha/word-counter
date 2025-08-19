@@ -24,12 +24,14 @@ Character + Word Tracking – Useful for SEO titles, meta descriptions, and soci
 
 Free & Accessible Anywhere – No installation needed, just open your browser and use it.
 
-👉 Try the free Word & Character Counter Tool
- to instantly measure your text length and stay on track with your writing goals.
+👉 Try the free [Word & Character Counter Tool](https://www.santprotools.com/word-counter/) to instantly measure your text length and stay on track with your writing goals.
 
 Final Thoughts
 
 In a world where communication is key, the right number of words can make all the difference. Whether you’re writing a school essay, crafting a social media post, or preparing professional documents, a Word & Character Counter ensures your message is clear, concise, and impactful.
 
 Start optimizing your writing today with the free Word Counter Tool
-.
+
+In a world where communication is key, the right number of words can make all the difference. Whether you’re writing a school essay, crafting a social media post, or preparing professional documents, a Word & Character Counter ensures your message is clear, concise, and impactful.
+
+Start optimizing your writing today with the free [Word Counter Tool](https://www.santprotools.com/word-counter/).
